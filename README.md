@@ -1,0 +1,2 @@
+# Johri
+Pemilik asli
